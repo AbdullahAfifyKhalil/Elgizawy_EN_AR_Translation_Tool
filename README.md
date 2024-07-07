@@ -1,0 +1,1 @@
+# Elgizawy_EN_AR_Translation_Tool
